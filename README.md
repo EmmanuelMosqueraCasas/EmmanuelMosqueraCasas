@@ -1,4 +1,4 @@
-Hi 👋 My name is Emmanuel Mosquera Casas
+Hi 😁💻 My name is Emmanuel Mosquera Casas 👨‍💻
 ========================================
 
 Developer
